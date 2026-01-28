@@ -8,7 +8,7 @@ Ingredients
 
 ▢3/4 cup (63 g) unsweetened cocoa powder
 
-▢2 teaspoons (8 g) baking powder
+▢1 teaspoons (8 g) baking powder
 
 ▢1 1/2 teaspoons (9 g) baking soda
 
@@ -22,7 +22,7 @@ Ingredients
 
 ▢2 large (100 g) eggs
 
-▢2 teaspoons (9.4 g) vanilla extract
+▢1 teaspoons (4.8 g) vanilla extract
 
 ▢1 cup (227. g) boiling water
 
